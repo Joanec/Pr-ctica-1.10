@@ -1,1 +1,1 @@
-# Pr-ctica-1.10
+# Práctica-1.10
